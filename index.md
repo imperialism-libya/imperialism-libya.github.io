@@ -2,6 +2,12 @@
 title: Imperialism in Libya
 ---
 
+![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/7/78/Flag_of_Italy_%281861%E2%80%931946%29.svg/1024px-Flag_of_Italy_%281861%E2%80%931946%29.svg.png)
+
+Flag of Italian Libya
+
+---
+
 ## Division of work
 
 A - Steven, Owen, Frank (work together)
@@ -37,6 +43,10 @@ What is colonialism? It means powerful countries let other countries through the
 1943, Britain and France occupied with Libya respiratory established the junta. After the second world war, Libya began to separate.
 
 ## C - The example from 21th century
+
+![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/0/05/Flag_of_Libya.svg/1280px-Flag_of_Libya.svg.png)
+
+Flag of Libya
 
 The territory of Italian Libya was also called Italian North Africa (Africa Settentrionale Italiana, or ASI), both before and after its unification in 1934.
 
