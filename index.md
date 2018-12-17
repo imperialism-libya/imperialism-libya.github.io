@@ -33,6 +33,7 @@ What is colonialism? It means powerful countries let other countries through the
 1830, Libya to be dominated by Turkish sultan. Until 1911, Italy defeated the turkish army. It cause Libya colonized by the litalion. But local residents against litaly’s rule, which made out of Italy.
 
 1943, Britain and France occupied with Libya respiratory established the junta. After the second world war, Libya began to separate.
+
 ![alt text](https://inpursuitofhappiness.files.wordpress.com/2011/08/colonialism.jpg)
 
 ## C - The example from 21th century
