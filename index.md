@@ -44,17 +44,13 @@ What is colonialism? It means powerful countries let other countries through the
 
 ## C - The example from 21th century
 
-![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/0/05/Flag_of_Libya.svg/1280px-Flag_of_Libya.svg.png)
-
-Flag of Libya
-
 The territory of Italian Libya was also called Italian North Africa (Africa Settentrionale Italiana, or ASI), both before and after its unification in 1934.
 
 Libya benefit from the Italian colonization of Libya. The Italians built huge public works. Italian farmers cultivated lands that had been lost to the desert for centuries. Leptis Magna was rediscovered in the 1920s. In 1934, Italy adopted the name "Libya" as the official name of the colony. 
 
-![alt text](https://upload.wikimedia.org/wikipedia/commons/1/12/Leptis_Magna_Arch_of_Septimus_Severus.jpg)
+![alt text](https://img.ev.mu/images/attractions/2059/960x640/453506.jpg)
 
-The Arch of Septimius Severus in Leptis Magna
+Leptis Magna
 
 Italian didn’t harm Libya. Libya was colonized by Turkey. Italians won the Italo-Turkish War in 1911-1912 and Ottoman Turkey surrendered its control of Libya in the Treaty of Lausanne in 1912. 
 
