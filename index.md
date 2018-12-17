@@ -4,17 +4,17 @@ title: Imperialism in Libya
 
 ## Division of work
 
-A) Steven, Owen, Frank (work together)
+A - Steven, Owen, Frank (work together)
 
-B) Frank
+B - Frank
 
-C) Steven
+C - Steven
 
-D) Owen
+D - Owen
 
 ---
 
-## A) Imperialism in the 19th century
+## A - Imperialism in the 19th century
 
 #### Examples of many different countries and colonies
 
@@ -24,7 +24,7 @@ Europe was the main power in oceanic imperialism  in the 19th century. They want
 
 Africa was colonized by European powers during the period of New Imperialism from 1881 to 1914. In 1870, only 10 percent of Africa was under formal European control; by 1914 it had increased to almost 90 percent of the continent, with only Ethiopia (Abyssinia) and Liberia still being independent. 
 
-## B) The example from 19th century
+## B - The example from 19th century
 
 In 19th century , some country use their power to invade other countries and settlement in other countries. We called it colonialism.
 
@@ -34,7 +34,7 @@ What is colonialism? It means powerful countries let other countries through the
 
 1943, Britain and France occupied with Libya respiratory established the junta. After the second world war, Libya began to separate.
 
-## C) The example from 21th century
+## C - The example from 21th century
 
 The territory of Italian Libya was also called Italian North Africa (Africa Settentrionale Italiana, or ASI), both before and after its unification in 1934.
 
@@ -42,7 +42,7 @@ Libya benefit from the Italian colonization of Libya. The Italians built huge pu
 
 Italian didn’t harm Libya. Libya was colonized by Turkey. Italians won the Italo-Turkish War in 1911-1912 and Ottoman Turkey surrendered its control of Libya in the Treaty of Lausanne in 1912. 
 
-## D) Relating the 19th century example to one in the 21st century
+## D - Relating the 19th century example to one in the 21st century
 
 
 ## Bibliography
