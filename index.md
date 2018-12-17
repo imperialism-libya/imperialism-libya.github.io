@@ -42,6 +42,10 @@ What is colonialism? It means powerful countries let other countries through the
 
 1943, Britain and France occupied with Libya respiratory established the junta. After the second world war, Libya began to separate.
 
+Mercantilism, the word from adam smith's book named "An Inquiry into the Nature and Causes of the Wealth of Nations". The word means a country's exports should bigger than imports.If countries get more gold and silver, they will stronger.
+
+The end of the 19th century, britain began to change their colonial policy. They on longer direct rule in the colonies. Support they have given colonies, they let local residents to learn English. British law in colonial propaganda. Establish British banks. This makes the colonists from British rule.
+
 ## C - The example from 21th century
 
 The territory of Italian Libya was also called Italian North Africa (Africa Settentrionale Italiana, or ASI), both before and after its unification in 1934.
