@@ -52,6 +52,10 @@ The territory of Italian Libya was also called Italian North Africa (Africa Sett
 
 Libya benefit from the Italian colonization of Libya. The Italians built huge public works. Italian farmers cultivated lands that had been lost to the desert for centuries. Leptis Magna was rediscovered in the 1920s. In 1934, Italy adopted the name "Libya" as the official name of the colony. 
 
+![alt text](https://upload.wikimedia.org/wikipedia/commons/1/12/Leptis_Magna_Arch_of_Septimus_Severus.jpg)
+
+The Arch of Septimius Severus in Leptis Magna
+
 Italian didn’t harm Libya. Libya was colonized by Turkey. Italians won the Italo-Turkish War in 1911-1912 and Ottoman Turkey surrendered its control of Libya in the Treaty of Lausanne in 1912. 
 
 ## D - Relating the 19th century example to one in the 21st century
