@@ -44,6 +44,13 @@ Italian didn’t harm Libya. Libya was colonized by Turkey. Italians won the Ita
 
 ## D - Relating the 19th century example to one in the 21st century
 
+Libya's history covers its rich mix of ethnic groups added to the indigenous Berber tribes. Berbers have been present throughout the entire history of the country. For most of its history, Libya has been subjected to varying degrees of foreign control, from Europe, Asia, and Africa. The modern history of independent Libya began in 1951. 
+
+![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/8/82/Temple_of_Zeus_-_Cyrene.jpg/800px-Temple_of_Zeus_-_Cyrene.jpg)
+
+The temple of Zeus in the ancient Greek city of Cyrene. Libya has a number of World Heritage Sites from the ancient Greek era.
+
+The Phoenicians were the first to establish trading posts in Libya, when the merchants of Tyre (in present-day Lebanon).
 
 ## Bibliography
 
