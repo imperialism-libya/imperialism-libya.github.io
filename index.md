@@ -22,7 +22,7 @@ D) Owen
 
 ## Bibliography
 
-"Italian colonization of Libya - Wikipedia." Wikimedia Foundation, Inc., 04 Dec 2018. Accessed 06 Dec 2018. [en.wikipedia.org/wiki/Italian_colonization_of_Libya].
+"Italian colonization of Libya - Wikipedia." Wikimedia Foundation, Inc., 04 Dec 2018. Accessed 06 Dec 2018. <en.wikipedia.org/wiki/Italian_colonization_of_Libya>.
 
 "Italy–Libya relations - Wikipedia." Wikimedia Foundation, Inc., 30 Nov 2018. Accessed 06 Dec 2018. [en.wikipedia.org/wiki/Italy-Libya_relations].
 
